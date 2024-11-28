@@ -1,3 +1,5 @@
+https://googliesgoogle.com
+
 Google Googlies: Transforming Search into an Interactive Adventure
 Google has recently launched an innovative campaign called Googlies, designed to transform the search experience into a playful and interactive game. This initiative, developed in collaboration with Ogilvy, aims to engage users by tapping into their natural curiosity.
 
